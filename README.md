@@ -1,1 +1,1 @@
-# Thrinity-Vit-ria
+# Thrinity
